@@ -2,7 +2,7 @@
 
 **A. TỔNG QUAN VỀ CỜ ÚP**
 
-- Bàn cờ Tướng:
+- Bàn cờ Tướng (Cờ ngữa):
   ![Screenshot 2023-03-13 154117](https://user-images.githubusercontent.com/82578024/224654599-6ae0bbb0-30ab-4b75-8944-d3f892464483.jpg)
 - Bàn cờ úp:
   ![Cấu trúc bàn cờ úp](https://user-images.githubusercontent.com/82578024/224649033-f2d74b01-2b53-4112-b716-748a90f11c52.jpg)
