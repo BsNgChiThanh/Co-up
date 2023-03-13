@@ -22,8 +22,8 @@
    - Pháo đi giống trong cờ ngữa.
    - Mã đi giống trong cờ ngữa.
    - Riêng:
-     - Sĩ: được quyền đi sang nước bạn, tham gia tấn công, hình đi là đường chéo ô vuông nhỏ.
-     - Tượng: được quyền qua nước bạn, tham gia tấn công, hình đi là đường chéo hình vuông lớn (4 hình vuông nhỏ), nước cản thì có quân nằm giữa rốn của hình vuông lớn.
+     - Sĩ: được quyền đi ngoài cung cấm sang nước đối thủ, tham gia tấn công, hình đi là đường chéo ô vuông nhỏ.
+     - Tượng: được quyền qua nước đối thủ, tham gia tấn công, hình đi là đường chéo hình vuông lớn (4 hình vuông nhỏ), nước cản thì có quân nằm giữa rốn của hình vuông lớn.
   - Các quân cờ đã chết trong tư thế úp của đối thủ thì chỉ có mình thấy được, đối thủ chỉ nhìn thấy được quân cờ ngữa của đối thủ đã chết mà thôi **và ngược lại**.
   - Nước chiếu hết giống nước chiếu hết của cờ Tướng (cờ ngữa).
  
