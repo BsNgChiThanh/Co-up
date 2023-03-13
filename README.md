@@ -46,7 +46,7 @@
 - Vậy nước đi đầu tiên nên ưu tiên cho Tốt giả (ngoại trừ Tốt 5)
 - Trường hợp đỏ tấn Tốt ra quân Sĩ:
   - ![6](https://user-images.githubusercontent.com/82578024/224677454-a83986c2-94db-4b4b-ac30-2c665f1c43d6.jpg)
-  - Quân Sĩ đỏ này nước tiếp theo sẽ tấn lên đường số 6 hoặc số 8, đe dọa bắt một lúc 2 quân Tốt giả của chúng ta, nguy cơ thiệt quân bên đen rất cao.
+  - Quân Sĩ đỏ này nước tiếp theo sẽ tấn lên đường số 6 hoặc số 8, đe dọa bắt một lúc 2 quân Tốt giả bên đen, nguy cơ thiệt quân là rất cao.
 
 # Đang cật nhật thêm #
 
