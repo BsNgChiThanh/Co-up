@@ -43,7 +43,7 @@
     - ![4](https://user-images.githubusercontent.com/82578024/224672652-c670f37e-7e0a-4648-933a-2b9aa3ecddc5.jpg)
     - Giả sử Đen tấn Tượng giả lên đường 5, không ra Pháo mà ra quân khác ví dụ như Mã thì đỏ chớ tham lam ăn tiếp Tốt giả đường số 5 vì đem không từ bỏ ý định tấn Sĩ lên đường số 5 nếu hên ra quân Pháo xem như mất Xe.
     - ![5](https://user-images.githubusercontent.com/82578024/224675692-0937581f-571c-4eda-91c2-15a179c14c5d.jpg)
-- Vậy nước đi đầu tiên nên ưu tiên cho Sĩ giả (ngoại trừ Sĩ 5)
+- Vậy nước đi đầu tiên nên ưu tiên cho Tốt giả (ngoại trừ Tốt 5)
 - Trường hợp đỏ tấn Tốt ra quân Sĩ:
   - ![6](https://user-images.githubusercontent.com/82578024/224677454-a83986c2-94db-4b4b-ac30-2c665f1c43d6.jpg)
   - Quân Sĩ đỏ này nước tiếp theo sẽ tấn lên đường số 6 hoặc số 8, đe dọa bắt một lúc 2 quân Tốt giả của chúng ta, nguy cơ thiệt quân bên đen rất cao.
