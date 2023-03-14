@@ -46,7 +46,14 @@
 - Vậy nước đi đầu tiên nên ưu tiên cho Tốt giả (ngoại trừ Tốt 5)
 - Trường hợp đỏ tấn Tốt ra quân Sĩ:
   - ![6](https://user-images.githubusercontent.com/82578024/224677454-a83986c2-94db-4b4b-ac30-2c665f1c43d6.jpg)
-  - Quân Sĩ đỏ này nước tiếp theo sẽ tấn lên đường số 6 hoặc số 8, đe dọa bắt một lúc 2 quân Tốt giả bên đen, nguy cơ thiệt quân là rất cao.
+  - Quân Sĩ đỏ này nước tiếp theo sẽ tấn lên đường số 6 hoặc số 8, đe dọa bắt một lúc 2 quân Tốt giả bên đen, nguy cơ thiệt quân là rất cao; đen đáp trả bằng Tốt giả 3 tấn 1.
+  - Tương tự hình cờ:
+  - ![7](https://user-images.githubusercontent.com/82578024/224952205-d938e22a-a383-4d9f-8efc-e6a980404f14.jpg)
+  - Đen đáp trả chính xác là Tốt giả 5 tấn 1.
+
+**C. BÌNH LUẬN MỘT SỐ VÁN CỜ:**
+
+**1. Ván 1**
 
 # Đang cật nhật thêm #
 
