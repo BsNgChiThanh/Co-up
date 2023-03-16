@@ -53,7 +53,7 @@
 
 **C. BÌNH LUẬN MỘT SỐ VÁN CỜ:**
 
-**1. Ván 1**
+**1. Ván 1: [Bấm vào đây](https://www.youtube.com/watch?v=xHex99fwmss)**
 
 # Đang cật nhật thêm #
 
