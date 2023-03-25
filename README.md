@@ -54,11 +54,16 @@
 **C. BÌNH LUẬN MỘT SỐ VÁN CỜ:**
 
 **1. Ván 1: [Bấm vào đây](https://www.youtube.com/watch?v=xHex99fwmss)**
-**2. Ván 2: [Bấm vào đây](https://youtu.be/vdfwSEjXrQ0)
-**3. Ván 3: [Bấm vào đây](https://youtu.be/5i4ifNgLEMM)
-**4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)
-**5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)
-**6. Ván 6: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)
+
+**2. Ván 2: [Bấm vào đây](https://youtu.be/vdfwSEjXrQ0)**
+
+**3. Ván 3: [Bấm vào đây](https://youtu.be/5i4ifNgLEMM)**
+
+**4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)**
+
+**5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
+
+**6. Ván 6: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)**
 
 
 
