@@ -371,6 +371,116 @@
 
 **4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)**
 
+- Bình luận ván 4:
+
+  Nước 1:
+
+  Đỏ Binh 3 tấn 1, ra quân Xe.
+
+  ![1679837966302.jpg](https://user-images.githubusercontent.com/82578024/227779617-038f513e-c757-4029-9474-ca0eee655b14.jpg)
+
+  Đen Mã 8 tấn 7.
+
+  ![1679838024028.jpg](https://user-images.githubusercontent.com/82578024/227779662-d30ab6bc-66bf-43fb-afeb-807209b57ccd.jpg)
+
+  Nước 2:
+
+  Đỏ tấn Xe 3 chém Tốt, nhìn xuống góc dưới bên trái, ta vừa chém được quân Xe thật.
+
+  ![1679838138393.png](https://user-images.githubusercontent.com/82578024/227779772-b15d6039-0deb-44e8-99d8-5f2f35a95daa.png)
+  
+  Đen Tượng 7 tấn 5.
+
+  ![1679838296225.jpg](https://user-images.githubusercontent.com/82578024/227779946-6291eb23-26af-4398-97fd-35c095417614.jpg)
+
+  Nước 3:
+
+  Đỏ bình Xe chém trung Binh, được một quân Mã thật.
+  
+  ![1679838437767.jpg](https://user-images.githubusercontent.com/82578024/227780093-0d288272-c069-4e30-9e2f-4d3fc6207d19.jpg)
+
+  Đen chống Sĩ.
+
+  ![1679838522019.jpg](https://user-images.githubusercontent.com/82578024/227780198-9fd961eb-46f5-420d-9fb4-9b30d7d7b7d7.jpg)
+
+  Nước 4:
+
+  Đỏ tiếp tục bình Xe sang đường 7 chém Tốt.
+
+  ![1679838715926.jpg](https://user-images.githubusercontent.com/82578024/227780410-de72d692-138c-44e0-ad5d-aebbb52e0c13.jpg)
+
+  Đen tấn Tốt 9.
+
+  ![1679838766084.jpg](https://user-images.githubusercontent.com/82578024/227780447-5d8e234b-6573-4fdb-82c8-ddbb2a62190e.jpg)
+
+  Nước 5:
+
+  Đỏ tấn Mã 2 lên đường 3, mở quân.
+
+  ![1679838838781.jpg](https://user-images.githubusercontent.com/82578024/227780493-1f815046-da16-4bcb-a463-a31b6f6135c0.jpg)
+
+  Đen Pháo 8 tấn 4, một nước đi khá hay.
+
+  ![1679838920250.jpg](https://user-images.githubusercontent.com/82578024/227780563-5e369b4a-2901-467a-b589-ad64a91e5336.jpg)
+
+  Nước 6:
+
+  Đỏ thối Xe 7 về tuần hà.
+
+  ![1679839015279.jpg](https://user-images.githubusercontent.com/82578024/227780648-f330f232-8486-417d-954f-e74899748d77.jpg)
+
+  Đen tấn Tốt 1.
+
+  ![1679839107321.jpg](https://user-images.githubusercontent.com/82578024/227780741-206df7c7-ca82-4844-8afa-1acf19af48f7.jpg)
+
+  Nước 7:
+
+  Đỏ tấn Mã 8 lên 9, bảo vệ Xe lộ 9.
+
+  ![1679839171806.jpg](https://user-images.githubusercontent.com/82578024/227780816-f89b58b4-a828-4f22-bb9e-cc6a21c1499c.jpg)
+ 
+  Đen thối Mã về đầu Tượng.
+
+  ![1679839276168.jpg](https://user-images.githubusercontent.com/82578024/227780922-d37d0987-cb38-4e6a-9769-1ae5b3c6a035.jpg)
+
+  Nước 8:
+
+  Nước đi chính xác của đỏ là bình Xe 7 sang lộ 4, ngân không cho Mã tiến lên, đỏ có vẻ chủ quan tấn Pháo 8 lên 4 nấc.
+
+  ![1679839612028.jpg](https://user-images.githubusercontent.com/82578024/227781257-bdabb0ae-5201-498e-aeaf-ef52570149ff.jpg)
+
+  Đen chưa nhận ra, chơi Mã 2 tấn 1.
+
+  ![1679839785249.jpg](https://user-images.githubusercontent.com/82578024/227781417-a7a1d3b8-4da0-4ab4-94e3-a21fb9402a87.jpg)
+
+  Nước 9:
+
+  Đỏ xem thường quân Mã 7, tiếp tục tấn Tốt 9.
+
+  ![1679839930078.jpg](https://user-images.githubusercontent.com/82578024/227781573-2546f6a2-9915-46d4-b529-4c8d06e4415c.jpg)
+
+  Đen bình Pháo chiếu Tướng.
+
+  ![1679840051544.jpg](https://user-images.githubusercontent.com/82578024/227781668-eafd6d62-a569-498b-a305-77a83f2adfda.jpg)
+
+  Nước 10:
+
+  
+
+  
+
+
+  
+
+
+
+  
+
+
+
+
+
+
 **5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
 
 **6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
