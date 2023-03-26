@@ -343,20 +343,31 @@
 
   Đỏ tấn Xe 3 chém Tốt.
 
-  
+  ![1679834823954.jpg](https://user-images.githubusercontent.com/82578024/227776685-62e0c264-772b-488d-99a0-f946e6ef97e9.jpg)
 
-  
- 
-  
-  
-  
+  Đen Tượng 5 tấn 3 chiếu Tướng.
 
- 
+  ![1679834917017.jpg](https://user-images.githubusercontent.com/82578024/227776782-743438a2-c4f0-49b8-afe6-50b19c9b427d.jpg)
 
+  Nước 13:
 
+  Đáng lẽ ra đỏ bình Pháo chém Tượng, vì sai lầm nên đi Sĩ 5 thối 4 cản eo Tượng.
 
+  ![1679835093947.jpg](https://user-images.githubusercontent.com/82578024/227776925-6d3b1ba2-a003-4fdb-86ff-7442c172915c.jpg)
 
+  Đen tấn Tượng, chém Xe giả.
 
+  ![1679835177330.jpg](https://user-images.githubusercontent.com/82578024/227777000-00e578e0-3273-4e4d-bf81-95a02c3c147e.jpg)
+
+  Nước 14:
+
+  Đỏ sai lầm tai hại, mất Xe 9, nhưng vẫn còn chơi được, bình tĩnh tấn Tốt 8, ép Pháo.
+
+  ![1679835292380.jpg](https://user-images.githubusercontent.com/82578024/227777078-bf75f318-8b13-44a8-b72a-404da70d9fec.jpg)
+
+  Đen bỏ cuộc không rõ lý do.
+
+  ![1679835408030.jpg](https://user-images.githubusercontent.com/82578024/227777182-9a3e31fa-0b71-4ec6-8738-297010702010.jpg)
 
 **4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)**
 
