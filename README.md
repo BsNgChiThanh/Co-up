@@ -107,7 +107,49 @@
 
   Đen tấn Mã 5 lên 4 chiếu Tướng, dọa bắt Xe.
 
+  ![1679816136178.jpg](https://user-images.githubusercontent.com/82578024/227761923-79bda10b-aea3-4f7f-b484-90670e5c3814.jpg)
 
+  Nước 6:
+
+  Xe đỏ buộc chui vào đường 5 lánh nạn.
+
+  ![1679816255782.jpg](https://user-images.githubusercontent.com/82578024/227762008-43ff360b-11fb-40ad-9834-fef1e76c50e6.jpg)
+
+  Đen tấn Mã chém trung Binh, nhìn xuống góc dưới bên trái trung Binh mới chém là một quân Mã.
+
+  ![1679816449245.jpg](https://user-images.githubusercontent.com/82578024/227762134-a6199977-2ae9-4ed9-b436-397f0c633242.jpg)
+
+  Nước 7:
+
+  Đỏ tấn Tượng 3 lên 5 làm dày trung lộ.
+
+  ![1679817124141.jpg](https://user-images.githubusercontent.com/82578024/227762593-aeb10fb5-5942-4ed4-b424-afbd65abd422.jpg)
+
+  Đen thối Mã về đường 6 truy Tốt.
+
+  ![1679816808729.jpg](https://user-images.githubusercontent.com/82578024/227762353-5dbd6203-c6b2-4282-bfb4-615f313de9d2.jpg)
+
+  Nước 8:
+
+  Đỏ tấn Tốt 3 tránh sự truy sát của Mã đen.
+
+  ![1679816900139.jpg](https://user-images.githubusercontent.com/82578024/227762417-c3dbf2c6-da7d-49bd-b411-801a78334797.jpg)
+
+  Đen tấn Pháo 4 nấc, mở quân tham chiến, nước đi này khá hay trong cờ úp.
+
+  ![1679817001866.jpg](https://user-images.githubusercontent.com/82578024/227762495-5eac4d1d-80c2-42e5-a30c-ad91152602df.jpg)
+
+  Nước 9:
+
+  Đỏ sợ đen bình Xe ăn Tốt 7, nên tấn nó lên thoát khỏi sự truy đuổi.
+
+  ![1679817488280.jpg](https://user-images.githubusercontent.com/82578024/227763039-6b3bfd73-6f4e-454c-be77-e4a54c6e6093.jpg)
+
+  Đen tấn Tốt 3 lên tham chiến.
+
+  
+  
+  
 
   
 
