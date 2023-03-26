@@ -231,7 +231,9 @@
 
 **5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
 
-**6. Ván 6: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)**
+**6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
+
+**7. Ván 7: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)**
 
 
 
