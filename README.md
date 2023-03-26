@@ -81,6 +81,31 @@
 
   Nước 3:
 
+  Đỏ tham lam, tiếp tục bình Xe 7 vào đường 5 truy Tốt.
+
+  ![1679814939839.jpg](https://user-images.githubusercontent.com/82578024/227761197-f6f82056-ea94-44be-b5ed-81a11f912071.jpg)
+
+  Đen tấn Tượng 3 lên 5 với hy vọng ra quân bảo vệ được quân Tốt 5.
+
+  ![1679815173350.jpg](https://user-images.githubusercontent.com/82578024/227761317-e4d2598a-bbf3-4514-bed2-267eee74bd30.jpg)
+
+  Nước 4:
+
+  Khi đen mở quân ra quân Mã, không bảo vệ được Tốt đầu, đỏ tấn Xe chém liền.
+
+  ![1679815450587.jpg](https://user-images.githubusercontent.com/82578024/227761500-7f49f167-8fc7-448d-9df6-ce31040799b7.jpg)
+
+  Đen tiếp tục dùng thủ đoạn tấn Sĩ 4 lên hy vọng ra quân Pháo truy Xe.
+
+  ![1679815608750.jpg](https://user-images.githubusercontent.com/82578024/227761620-266f2802-dfa1-4be7-9b10-0370fd7cfb50.jpg)
+
+  Nước 5:
+
+  Đỏ tránh Xe sang đường 4 tránh sự truy sát của Pháo.
+
+  ![1679815723922.jpg](https://user-images.githubusercontent.com/82578024/227761698-e948780b-6d73-4b8e-a62e-c26b43ec8ca1.jpg)
+
+  Đen tấn Mã 5 lên 4 chiếu Tướng, dọa bắt Xe.
 
 
 
