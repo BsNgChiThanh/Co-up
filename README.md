@@ -57,6 +57,35 @@
 
 **2. Ván 2: [Bấm vào đây](https://youtu.be/vdfwSEjXrQ0)**
 
+- Bình ván 2:
+
+  Nước 1: 
+
+  Đỏ tấn Tốt 1, ra quân Xe.
+
+  ![1679810436462.jpg](https://user-images.githubusercontent.com/82578024/227758225-5d814faa-1824-49ec-ab93-6ef29d01e545.jpg)
+
+   Để tránh thủ đoạn của đỏ tấn Pháo 2 tiêu diệt Mã giả đường 8 của mình, nếu mở ra quân Tốt thì buộc lòng Xe 9 phải bình vào tiêu diệt, lúc này đỏ tiền Xe 1 tấn lên diệt Tốt 9 và đe dọa cả một hàng Tốt bên đen. Vì vậy đen tấn Mã 8 lên 7.
+
+  ![1679810717140.jpg](https://user-images.githubusercontent.com/82578024/227758417-a386a2db-2d7c-4213-abee-9e2f6f6bd2c6.jpg)
+
+  Nước 2:
+
+  Đỏ tiền Xe 1 bình 7 truy Tốt.
+
+  ![1679810830169.jpg](https://user-images.githubusercontent.com/82578024/227758476-865b2fd5-769d-4666-b91c-90152a024030.jpg)
+
+  Đen Mã 2 tấn 3, hy vọng ra quân Tốt để bảo vệ Tốt giả.
+
+  ![1679811071253.jpg](https://user-images.githubusercontent.com/82578024/227758678-de016796-f823-40e5-81eb-c573818f13a6.jpg)
+
+  Nước 3:
+
+
+
+
+  
+
 **3. Ván 3: [Bấm vào đây](https://youtu.be/5i4ifNgLEMM)**
 
 **4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)**
