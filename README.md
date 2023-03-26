@@ -147,7 +147,21 @@
 
   Đen tấn Tốt 3 lên tham chiến.
 
-  
+  ![1679818349861.jpg](https://user-images.githubusercontent.com/82578024/227763557-135206a9-dc63-42ad-9878-4da2a7ed910d.jpg)
+
+  Nước 10:
+
+  Đáng lẽ ra đỏ phải chạy Sĩ 7 thoát khỏi sự truy sát của tiền Tốt 3, nào ngờ đỏ tấn Sĩ, đây là một phương án yếu vì chưa cần thiết, điều này làm Tướng ngộp thở.
+
+  ![1679818579048.jpg](https://user-images.githubusercontent.com/82578024/227763712-e4105cb3-3ee6-49f1-a717-561db340a8e9.jpg)
+
+  Đen không khách khí, tiền Tốt 3 tấn lên chém Sĩ.
+
+  ![1679818647917.jpg](https://user-images.githubusercontent.com/82578024/227763749-cffcfa3b-af47-4625-878e-5c3f56623a99.jpg)
+
+  Nước 11:
+
+  Đỏ
   
   
 
