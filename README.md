@@ -275,7 +275,55 @@
 
   ![1679831823122.jpg](https://user-images.githubusercontent.com/82578024/227774008-0dd64c04-8334-4afd-a70f-a83d35d7616b.jpg)
 
-  Đen
+  Đen Mã 8 tấn 7, cả hai bên cùng mở thêm quân tấn công.
+
+  ![1679832710189.jpg](https://user-images.githubusercontent.com/82578024/227774794-644ec696-ae09-4c25-bd85-28548a82280f.jpg)
+
+  Nước 6:
+
+  Đỏ Mã 2 tấn 3.
+
+  ![1679832859801.jpg](https://user-images.githubusercontent.com/82578024/227774895-8bd7dc7f-1874-4b2f-a8cc-8e20fe5045cb.jpg)
+
+  Đen bỏ mặt Binh 7, tấn Pháo 8 lên 4 nấc, ra quân Tốt, đe dọa bắt Pháo.
+
+  ![1679832929578.jpg](https://user-images.githubusercontent.com/82578024/227774963-5d7c9d1b-0280-4a70-a9ca-72b25f476242.jpg)
+
+  Nước 7:
+
+  Đỏ chạy Pháo:
+
+  ![1679833089561.jpg](https://user-images.githubusercontent.com/82578024/227775127-2f9ea76c-8f5a-41d5-bc44-6aa9303c62f9.jpg)
+
+  Đen Tốt 8 bình 7, bắt Pháo, giải cứu hậu Tốt 7.
+
+  ![1679833222339.jpg](https://user-images.githubusercontent.com/82578024/227775243-d2324294-4452-4e9b-9e41-c1a1dc9fbee3.jpg)
+
+  Nước 8:
+
+  Đỏ chạy Pháo vào đường 4.
+
+  ![1679833297452.jpg](https://user-images.githubusercontent.com/82578024/227775301-cda608e9-f423-4a68-aa9d-7a766c43cf37.jpg)
+
+  Đến đây đen có thể nhấn Tốt xuống, tiến sâu vào trận địa, nhưng đen lại tấn Sĩ 6.
+
+  ![1679833450592.jpg](https://user-images.githubusercontent.com/82578024/227775401-f1f96fcd-3544-419c-873e-4b61726ce101.jpg)
+
+  Nước 9:
+
+  Đỏ Pháo 8 tấn 3, ra quân Tốt, đe dọa bắt Pháo.
+
+  ![1679833534544.jpg](https://user-images.githubusercontent.com/82578024/227775483-0550e996-5f83-4748-b167-98ef363ed4ea.jpg)
+
+  Đen chạy Pháo sang lộ 6.
+
+  ![1679833626197.jpg](https://user-images.githubusercontent.com/82578024/227775567-a1642750-def0-43ce-b9aa-5f546ae451a2.jpg)
+
+  Nước 10:
+
+  Đỏ 
+ 
+  
   
   
 
