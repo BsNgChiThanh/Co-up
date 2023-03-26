@@ -465,6 +465,18 @@
 
   Nước 10:
 
+  Đỏ chống Sĩ.
+
+  ![1679871373697.jpg](https://user-images.githubusercontent.com/82578024/227809977-ca079383-e513-4ab5-b5b9-6f1103453fb7.jpg)
+
+  Đen Mã 7 tấn 6, nước đi nham hiểm.
+
+  ![1679871647159.jpg](https://user-images.githubusercontent.com/82578024/227810232-82761b89-6a50-493b-8b6b-efd7361ce1d2.jpg)P
+
+  Nước 11:
+
+  Đỏ Xe 8 bình 7, Mã khó thoát nhưng bù lại Mã tiêu diệt được 2 quân.
+
   
 
   
