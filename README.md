@@ -505,21 +505,59 @@
 
   Nước 14:
 
-  Đỏ 
+  Đỏ tấn trung Binh.
 
-  
+  ![1679872974860.jpg](https://user-images.githubusercontent.com/82578024/227811271-fefbef36-ff0c-4fbb-98bd-568d3caeeaeb.jpg)
 
+  Đen Pháo 2 tấn 5.
 
-  
+  ![1679873068526.jpg](https://user-images.githubusercontent.com/82578024/227811352-55799c99-e982-45f7-a1ba-765eedd49364.jpg)
 
+  Nước 15:
 
+  Đỏ xuất Tướng, tránh sự kèm hãm của Pháo trung tâm, còn lợi dụng rình mò chiêu Pháo đầu xuất Tướng Xe đâm thọt.
 
-  
+  ![1679873359692.jpg](https://user-images.githubusercontent.com/82578024/227811615-5f266acc-4f3d-4bac-bbd2-b941d90af194.jpg)
 
+  Đen Xe 1 bình 2.
 
+  ![1679873402800.jpg](https://user-images.githubusercontent.com/82578024/227811657-24f84a8c-c219-407b-a87c-b41d23343bf0.jpg)
 
+  Nước 16:
 
+  Đỏ tấn Xe 4 bắt Pháo.
 
+  ![1679873479019.jpg](https://user-images.githubusercontent.com/82578024/227811704-9d8b7b87-5a05-4f8f-a30a-0903e85b7f24.jpg)
+
+  Đen dâng Xe lên bảo vệ.
+
+  ![1679873584055.jpg](https://user-images.githubusercontent.com/82578024/227811777-a7352e5c-8fa2-4996-ac83-2a47bacfc305.jpg)
+
+  Nước 17:
+
+  Đỏ tấn Mã 5 lên 6 bắt Pháo đầu.
+
+  ![1679873683606.jpg](https://user-images.githubusercontent.com/82578024/227811874-34aac836-3848-4aec-9589-3ab7027b2d9e.jpg)
+
+  Đen tấn Tượng 2 chém Sĩ.
+
+  ![1679873734817.jpg](https://user-images.githubusercontent.com/82578024/227811937-4d00ce22-129a-40a9-b374-6872448b2980.jpg)
+
+  Nước 18:
+
+  Đỏ tấn Mã chém Pháo đầu, dọa sát.
+
+  ![1679873861489.jpg](https://user-images.githubusercontent.com/82578024/227812042-f800f5a7-28e3-4ffd-ba38-e577f7ac8b40.jpg)
+
+  Đen khó lòng chống đỡ, gắng gượng.
+
+  ![1679873940527.jpg](https://user-images.githubusercontent.com/82578024/227812089-0ce4429e-44be-4fee-be81-866d24819b15.jpg)
+
+  Nước 19:
+
+  Đỏ sẽ tấn Mã 5 lên đường 6 chiếu bí. Đen buông e.
+
+  ![1679874087642.jpg](https://user-images.githubusercontent.com/82578024/227812191-5efa0c26-fe05-443a-8bca-e9281bb962ab.jpg)
 
 **5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
 
