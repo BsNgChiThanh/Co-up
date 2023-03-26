@@ -161,7 +161,15 @@
 
   Nước 11:
 
-  Đỏ
+  Đỏ thối Xe 5 một nấc, bắt Mã.
+
+  ![1679818786398.jpg](https://user-images.githubusercontent.com/82578024/227763850-b4c46373-caa7-420b-b03d-a327b2074526.jpg)
+
+  Mã đen thối về lộ 5 truy Xe.
+
+  ![1679818878068.jpg](https://user-images.githubusercontent.com/82578024/227763930-6f66e267-6d50-49f4-a607-bea45b52ec2f.jpg)
+
+
   
   
 
