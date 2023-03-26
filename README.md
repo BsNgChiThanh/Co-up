@@ -227,6 +227,65 @@
 
 **3. Ván 3: [Bấm vào đây](https://youtu.be/5i4ifNgLEMM)**
 
+- Bình luận ván3:
+
+  Nước 1:
+
+  Đỏ mở Binh 3.
+
+  ![1679830656183.jpg](https://user-images.githubusercontent.com/82578024/227773123-f0bc2c9c-a618-45df-b093-1d03c1c81206.jpg)
+
+  Đen mở Binh 1.
+
+  ![1679830776868.jpg](https://user-images.githubusercontent.com/82578024/227773202-9fa98776-4adc-4cd5-bb84-6e13f65cb71e.jpg)
+
+  Nước 2:
+
+  Đỏ mở Binh 7.
+
+  ![1679830864978.jpg](https://user-images.githubusercontent.com/82578024/227773276-eb6aa518-ff7a-456f-b483-94641a33a955.jpg)
+  
+  Đen tránh nước Sĩ 7 tấn 6 bắt đôi 2 Binh, nên mở Binh 3.
+
+  ![1679830959104.jpg](https://user-images.githubusercontent.com/82578024/227773332-53bd6412-cc46-44a8-9e7a-143caeaa9b4f.jpg)
+
+  Nước 3:
+
+  Để ngăn cản nước tấn Pháo chém Tượng chiếu Tướng của đen, nước đi chính xác của đỏ là tấn Mã 2 lên 1, nếu ra quân Xe thì không phải ngại, còn nếu tấn Tượng lên đường 1 hoặc 3 đèo không được thuận lợi.
+
+  ![1679831422937.jpg](https://user-images.githubusercontent.com/82578024/227773672-a0c5c2c6-8222-44be-9c28-c0fc3f5abf4c.jpg)
+
+  Đen Mã 2 tấn 3 mở thêm quân tấn công.
+
+  ![1679831506239.jpg](https://user-images.githubusercontent.com/82578024/227773743-36da82cf-f507-490a-938d-079842eca8b1.jpg)
+
+  Nước 4:
+
+  Đỏ mở Binh 5.
+
+  ![1679831621318.jpg](https://user-images.githubusercontent.com/82578024/227773850-2656a82f-c1ba-40f3-8c94-ac6d321cca8b.jpg)
+
+  Đen mở Binh 9.
+
+  ![1679831701810.jpg](https://user-images.githubusercontent.com/82578024/227773915-c1b2e2fc-642e-4b59-881d-9ff74f208ade.jpg)
+
+  Nước 5:
+
+  Đỏ Tượng 3 tấn lên 5.
+
+  ![1679831823122.jpg](https://user-images.githubusercontent.com/82578024/227774008-0dd64c04-8334-4afd-a70f-a83d35d7616b.jpg)
+
+  Đen
+  
+  
+
+ 
+
+
+
+
+
+
 **4. Ván 4: [Bấm vào đây](https://youtu.be/xOtUwY_u40I)**
 
 **5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
