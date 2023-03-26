@@ -475,9 +475,37 @@
 
   Nước 11:
 
-  Đỏ Xe 8 bình 7, Mã khó thoát nhưng bù lại Mã tiêu diệt được 2 quân.
+  Đỏ Xe 7 bình 4, Mã khó thoát nhưng bù lại Mã tiêu diệt được 2 quân.
 
-  
+  ![1679871955725.jpg](https://user-images.githubusercontent.com/82578024/227810450-efe7dbcd-08c0-4844-9347-475662dc29b8.jpg)
+
+  Đen tấn Mã chém Pháo, dọa bắt hai quân.
+
+  ![1679872149275.jpg](https://user-images.githubusercontent.com/82578024/227810585-d399f3e3-37fa-4326-b57e-254e212a6741.jpg)
+
+  Nước 12:
+
+  Đỏ Xe 8 bình 2, bắt Mã cho kỳ được.
+
+  ![1679872295801.jpg](https://user-images.githubusercontent.com/82578024/227810712-517f9fca-cb16-4d5c-949c-0dd6e9b8fa22.jpg)
+
+  Đen phi Mã chém Tượng.
+
+  ![1679872408104.jpg](https://user-images.githubusercontent.com/82578024/227810824-00aa1b69-01c3-42b6-99bc-21b1400f92c7.jpg)
+
+  Nước 13:
+
+  Đỏ nổi nóng bình Xe chém Mã.
+
+  ![1679872560977.jpg](https://user-images.githubusercontent.com/82578024/227810935-0d2e8cf4-275e-4744-9eb0-17bc69336e7a.jpg)
+
+  Đen phi Pháo 7 chém Sĩ.
+
+  ![1679872675361.jpg](https://user-images.githubusercontent.com/82578024/227811003-a58a2387-4918-48ea-a9b5-1a82677cee2f.jpg)
+
+  Nước 14:
+
+  Đỏ 
 
   
 
