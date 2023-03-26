@@ -321,7 +321,31 @@
 
   Nước 10:
 
-  Đỏ 
+  Đỏ tấn Sĩ 4 ra quân Xe.
+
+  ![1679833746450.jpg](https://user-images.githubusercontent.com/82578024/227775698-588e52d3-43d7-4734-951e-c29cbb71f467.jpg)
+
+  Đen Tượng 5 tấn 3.
+
+  ![1679833813603.jpg](https://user-images.githubusercontent.com/82578024/227775754-c430c89f-f744-4cc6-bf6e-2dc6ea847e31.jpg)
+
+  Nước 11:
+
+  Đỏ Xe 5 bình 3 truy Tốt.
+
+  ![1679834515195.jpg](https://user-images.githubusercontent.com/82578024/227776382-a3a7d90d-5866-492c-b35c-ab4b76961a37.jpg)
+
+  Đen tiền Tượng tấn 5, nếu không chú ý, tiền Tốt 3 tấn 1, bắt chết Pháo 
+
+  ![1679834287213.jpg](https://user-images.githubusercontent.com/82578024/227776169-95eda194-99fe-49a3-9bdb-3c355fdd7849.jpg)
+
+  Nước 12:
+
+  Đỏ tấn Xe 3 chém Tốt.
+
+  
+
+  
  
   
   
