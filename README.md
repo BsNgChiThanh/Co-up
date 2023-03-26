@@ -169,11 +169,61 @@
 
   ![1679818878068.jpg](https://user-images.githubusercontent.com/82578024/227763930-6f66e267-6d50-49f4-a607-bea45b52ec2f.jpg)
 
+  Nước 12:
+  
+  Đỏ Xe 5 bình sang đường 8, rũ đổi Pháo.
 
-  
-  
+  ![1679819113470.jpg](https://user-images.githubusercontent.com/82578024/227764093-b314eada-659a-4fa5-9854-7709bee913fb.jpg)
 
-  
+  Đen không chấp nhận đổi Pháo, đành bình Pháo giả sang đường 1.
+
+  ![1679819203939.jpg](https://user-images.githubusercontent.com/82578024/227764173-371741ff-c030-46ad-8c19-2b9020a35ad3.jpg)
+
+  Nước 13:
+
+  Đỏ tấn binh 9 lên tham gia tấn công.
+
+  ![1679819361536.jpg](https://user-images.githubusercontent.com/82578024/227764290-7dac1022-0fc8-40fe-9f16-de776c21f7a8.jpg)
+
+  Đen bình Xe 8 sang đường 7, truy Pháo.
+
+  ![1679819520715.jpg](https://user-images.githubusercontent.com/82578024/227764411-02ded7cd-f07a-4559-80e5-4016d92caf05.jpg)
+
+  Nước 14:
+
+  Đáng lý đỏ tấn Pháo 3 nấc chém Tốt, truy Xe (đây là nước mạnh), nào ngờ đỏ bình Pháo sang lộ 1 bắt Xe giả.
+
+  ![1679819949261.jpg](https://user-images.githubusercontent.com/82578024/227764773-943e9a62-b07d-4b87-b436-d109d230823d.jpg)
+
+  Đen bình Xe 9 sang đường 8 lánh nạn.
+
+  ![1679820027360.jpg](https://user-images.githubusercontent.com/82578024/227764847-0340dbf9-3bf5-4952-b6ff-529006ebf5d6.jpg)
+
+  Nước 15:
+
+  Đáng lẽ nước đi mạnh của đỏ là tấn Mã 2 lên đường 3 tham gia tấn công, nào ngờ đỏ bình Pháo 1 sang lộ 4, không rõ để làm gì.
+
+  ![1679820171139.jpg](https://user-images.githubusercontent.com/82578024/227764948-bff3462e-fdea-4520-b97c-8619242d21b7.jpg)
+
+  Đen tận dụng cơ hội, tấn Xe 8 kỵ hà, bắt Pháo.
+
+  ![1679820317843.jpg](https://user-images.githubusercontent.com/82578024/227765066-06adfc5f-cc34-436f-b884-3288dead58df.jpg)
+
+  Nước 16:
+
+  Đỏ thối Pháo 4 ba nấc.
+
+  ![1679820435998.jpg](https://user-images.githubusercontent.com/82578024/227765151-18cfe7f8-0883-4fde-b495-2e9578d36415.jpg)
+
+  Đen tấn Tốt 3, kèm hãm sự phát triển của Mã đỏ đường 8, nó không thể nhảy lên đường 7, cũng không thể nhảy lên đường 9 vì khi đó đen bình Xe 8 sang đường 1 chém Sĩ.
+
+  ![1679820746563.jpg](https://user-images.githubusercontent.com/82578024/227765368-d47ad164-c0ec-4abf-bb4c-92a0318b00d4.jpg)
+
+  Nước 17:
+
+  Đỏ bế tắc, buông súng.
+
+  ![1679820873336.jpg](https://user-images.githubusercontent.com/82578024/227765445-fcf886c9-f964-4090-8180-fa7c0f853bc0.jpg)
 
 **3. Ván 3: [Bấm vào đây](https://youtu.be/5i4ifNgLEMM)**
 
