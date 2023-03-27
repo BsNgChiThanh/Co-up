@@ -651,7 +651,11 @@
 
   Đen gỡ rối bằng cách phi Tượng 7 lên 5, nếu Binh đỏ tiếp tục lấn tới thì Mã đỏ có đường tẩu thoát.
 
-  ![1679911899738.jpg](https://user-images.githubusercontent.com/82578024/227912537-18edadd7-aed8-4719-b60a-e5d13313c65b.jpg)
+  ![1679915213982.jpg](https://user-images.githubusercontent.com/82578024/227924642-9e73653f-da78-4268-ae32-4d2f9867c013.jpg)
+
+  Nước 9:
+
+  Đỏ 
 
 
 
