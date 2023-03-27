@@ -635,7 +635,23 @@
 
   Nước 7:
 
-  Đỏ 
+  Đỏ tấn Pháo 2 bốn nấc, cũng có thể tấn lên 3 nấc, đây là một nước đi mạnh trong cờ úp.
+
+  ![1679911621024.jpg](https://user-images.githubusercontent.com/82578024/227911402-4683c710-ffc6-4264-a48c-53007eb6947b.jpg)
+
+  Đen lật đật chạy Pháo 8 sang đường 6.
+
+  ![1679911785402.jpg](https://user-images.githubusercontent.com/82578024/227912036-0ab93f70-4bf1-4e81-b5ba-71acd1694968.jpg)
+
+  Nước 8:
+
+  Đỏ tiếp tục tấn Binh 8, ép không cho Mã nhảy lên.
+
+  ![1679911899738.jpg](https://user-images.githubusercontent.com/82578024/227912537-18edadd7-aed8-4719-b60a-e5d13313c65b.jpg)
+
+  Đen gỡ rối bằng cách phi Tượng 7 lên 5, nếu Binh đỏ tiếp tục lấn tới thì Mã đỏ có đường tẩu thoát.
+
+  ![1679911899738.jpg](https://user-images.githubusercontent.com/82578024/227912537-18edadd7-aed8-4719-b60a-e5d13313c65b.jpg)
 
 
 
