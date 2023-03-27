@@ -595,7 +595,52 @@
 
   Nước 4:
 
+  Đỏ cũng làm điều tương tự, mở Binh 9, ra quân Tượng, đe vào Binh 3 đối phương.
+
+  ![1679910705334.jpg](https://user-images.githubusercontent.com/82578024/227907458-763878c9-0e01-4738-9544-2db2293be14e.jpg)
+
+  Đen phi Pháo cản eo Tượng.
+
+  ![1679910848477.jpg](https://user-images.githubusercontent.com/82578024/227908077-6c507e05-6019-4c63-bbaf-f0a40ffa9eff.jpg)
+
+  Nước 5:
+
+  Đỏ tấn Mã 8 lên 7, ra quân Pháo, đe vào Binh 3 đối phương.
+  
+  ![1679910949083.jpg](https://user-images.githubusercontent.com/82578024/227908529-9f112e36-493e-4201-88c4-677455553642.jpg)
+
+  Đỏ sẽ nuốt gọn Binh 3, đen tấn Mã 2 lên đường 3 hy vọng ra quân bảo vệ được Tốt 3.
+
+  ![1679911053764.jpg](https://user-images.githubusercontent.com/82578024/227908995-d21ef31e-56bd-41d6-bc93-11ccb3f04956.jpg)
+
+  Nước 6:
+
+  Đỏ lao Pháo tấn lên chém Tốt, được quân Sĩ thật.
+
+  ![1679911172009.jpg](https://user-images.githubusercontent.com/82578024/227909532-421b093d-55e8-40c3-a006-d0bcdb2f7f87.jpg)
+
+  ĐenĐen Tượng 3 tấn 5.
+
+  ![1679911276494.jpg](https://user-images.githubusercontent.com/82578024/227909932-fd7195b9-d980-46cb-bed8-07120697d4cc.jpg)
+
+  Nước 7:
+
+  Đỏ tranh thủ mở quân, Mã 2 tấn 4.
+
+  ![1679911365723.jpg](https://user-images.githubusercontent.com/82578024/227910289-7dec798a-3c9f-4d37-a578-4b2c708c8968.jpg)
+
+  Đen chống Sĩ 5 lên đường 4, ngân không cho Pháo chiếu Tướng.
+
+  ![1679911447891.jpg](https://user-images.githubusercontent.com/82578024/227910657-dcdc08c4-be71-446d-9f36-6eb6501e120f.jpg)
+
+  Nước 7:
+
   Đỏ 
+
+
+
+
+
 
 **6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
 
