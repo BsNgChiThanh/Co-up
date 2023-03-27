@@ -561,6 +561,42 @@
 
 **5. Ván 5: [Bấm vào đây](https://youtu.be/28zD5OdNR1Y)**
 
+- Bình luận ván 5:
+
+  Nước 1:
+
+  Đỏ mở Binh 3.
+
+  ![1679910162412.jpg](https://user-images.githubusercontent.com/82578024/227904998-12ce3f99-820a-4a1a-af9a-eea8655fca93.jpg)
+
+  Đen mở Binh 5.
+
+  ![1679910231777.jpg](https://user-images.githubusercontent.com/82578024/227905279-dda8e857-0bb3-499a-b0c2-e8fc063e7731.jpg)
+
+  Nước 2:
+
+  Đỏ tiếp tục mở Binh 7
+
+  ![1679910317142.jpg](https://user-images.githubusercontent.com/82578024/227905661-48e4a378-374c-4114-8382-a0b5cd1d6346.jpg)
+
+  Đen tấn Binh 7.
+
+  ![1679910376443.jpg](https://user-images.githubusercontent.com/82578024/227905934-40928719-3c71-483a-af76-523fd39eb3fc.jpg)
+
+  Nước 3:
+
+  Tượng đỏ tránh sự truy sát của Pháo, phi lên trung lộ.
+
+  ![1679910500304.jpg](https://user-images.githubusercontent.com/82578024/227906486-0abc15fa-c297-4794-829f-0b6b1827237a.jpg)
+
+  Đen mở Binh 9.
+
+  ![1679910557316.jpg](https://user-images.githubusercontent.com/82578024/227906789-29d5fed4-b9a2-40d5-aa0b-ceea9f380702.jpg)
+
+  Nước 4:
+
+  Đỏ 
+
 **6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
 
 **7. Ván 7: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)**
