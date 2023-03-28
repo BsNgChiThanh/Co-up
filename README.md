@@ -773,9 +773,28 @@
 
   ![1680009688106.jpg](https://user-images.githubusercontent.com/82578024/228250302-4288afab-1235-414e-9b0f-07279b6832dc.jpg)
 
-  Nước 30:
+  Nước 20:
 
+  Đỏ vẫn tấn Xe lộ 2 xuống bắt Pháo lộ 6 đối phương.
 
+  ![1680009868771.jpg](https://user-images.githubusercontent.com/82578024/228251166-06bbd38d-f093-4344-8064-9eb2197ab11e.jpg)
+
+  Đen nước đi mạnh là thối Pháo bỏ chạy, nào ngờ bình vào đường 5, đây là một phương án sai lầm.
+
+  ![1680009989856.jpg](https://user-images.githubusercontent.com/82578024/228251806-2647e011-44d6-4f5a-9df0-4c9010654d3c.jpg)
+
+  Nước 21:
+
+  Đỏ lập tức bình Pháo chiếu Tướng.
+
+  ![1680010154391.jpg](https://user-images.githubusercontent.com/82578024/228252634-291d456f-bb52-4529-a73c-94b2a0af9f1c.jpg)
+
+  Đen thối Pháo về tiêu diệt Pháo đỏ thì than ôi! Hy sinh cả một đôi Pháo, tới đây dường như đen hiểu được mình bị hố nên chống Sĩ lên.
+
+  ![1680010345303.jpg](https://user-images.githubusercontent.com/82578024/228253523-e4fcebe5-c5f3-4ed3-ac38-7aabc236718b.jpg)
+
+  Nước 22:
+  
  
 
 
