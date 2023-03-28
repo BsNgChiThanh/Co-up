@@ -655,7 +655,43 @@
 
   Nước 9:
 
-  Đỏ 
+  Đỏ nhấn Tốt 8 xuống ép Mã.
+
+  ![1680002860493.jpg](https://user-images.githubusercontent.com/82578024/228221989-9eaa2ee9-add3-4ff5-89d6-4007babaedef.jpg)
+
+  Đen phế Mã, tấn trung Binh dốc sức tấn công.
+
+  ![1680002955267.jpg](https://user-images.githubusercontent.com/82578024/228222299-caebed11-192a-4886-84c4-0dc866ef2dc1.jpg)
+
+  Nước 10:
+
+  Đỏ buộc tấn Binh 5 tiêu diệt Binh đối phương.
+
+  ![1680003135290.jpg](https://user-images.githubusercontent.com/82578024/228223006-6cd5f824-9215-4134-b8d3-3bfa5c564e3c.jpg)
+
+  Đen tấn Xe chém Mã, gan to bằng trời!
+ 
+  ![1680003228707.jpg](https://user-images.githubusercontent.com/82578024/228223364-c2aeb76c-0b62-42ea-8281-10a4ead74b93.jpg)
+
+  Nước 11:
+
+  Đỏ Pháo 4 bình vào trung lộ bắt chết Xe.
+
+  ![1680003357415.jpg](https://user-images.githubusercontent.com/82578024/228223882-2ca7fb95-d326-46d3-b3f4-aaa00a835e61.jpg)
+
+  Đen thối Xe ra một nấc, hy vọng chém lại Pháo.
+
+  ![1680003525217.jpg](https://user-images.githubusercontent.com/82578024/228224507-0d37db9a-47de-4004-8058-d81e7542f5a6.jpg)
+
+  Nước 12:
+
+  Đỏ phi
+  
+
+
+
+  
+  
 
 
 
