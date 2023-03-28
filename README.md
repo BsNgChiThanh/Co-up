@@ -685,7 +685,47 @@
 
   Nước 12:
 
-  Đỏ phi
+  Đỏ phi phi Pháo chém Xe.
+
+  ![1680003951967.jpg](https://user-images.githubusercontent.com/82578024/228226034-51757b38-50ff-4087-96c3-a3bef25603f8.jpg)
+
+  Đen tấn Sĩ chém lại Pháo.
+
+  ![1680004094771.jpg](https://user-images.githubusercontent.com/82578024/228226552-39157076-c94e-45c0-91bc-383964ef101e.jpg)
+
+  Nước 13:
+
+  Đỏ lo ngại Pháo đen có thể điều vào trung lộ sau nước dịch Sĩ 5, nên tấn Sĩ 4 nếu ra quân Xe cũng còn cơ hội tẩu thoát, còn nếu ra quân Tốt thì đen cuộc đời.
+
+  ![1680004216671.jpg](https://user-images.githubusercontent.com/82578024/228227018-b5568cb4-7efe-4e31-9b4d-7d9bf147f7d1.jpg)
+
+  Đen tẩu thoát quân Mã 8, ra quân Pháo, đỏ cảm thấy tiếc!
+
+  ![1680004445507.jpg](https://user-images.githubusercontent.com/82578024/228227902-f95379e7-a076-4c29-b50a-d24177417e03.jpg)
+
+  Nước 14:
+
+  Đỏ tấn Binh 5, giải quyết trung lộ, nhường chỗ nước sau cho Tượng hoặc Pháo nhảy vào.
+
+  ![1680004445507.jpg](https://user-images.githubusercontent.com/82578024/228227902-f95379e7-a076-4c29-b50a-d24177417e03.jpg)
+
+  Đen tấn Binh 1 chủ yếu để mở quân, hình cờ này mở quân như thế sẽ bị kẹt, nhưng hết cách rồi..
+
+  ![1680004688546.jpg](https://user-images.githubusercontent.com/82578024/228228892-323e9332-d169-4015-bfdd-b2af64b33dd0.jpg)
+
+  Nước 15:
+
+  Đỏ tấn Tượng lên trung lộ.
+
+  ![1680004901155.jpg](https://user-images.githubusercontent.com/82578024/228229672-05294989-ecbd-456e-89a9-2d641fc0b275.jpg  
+
+  Đen bình Pháo vào trung lộ, nước đi này không hiểm.
+
+  ![1680005085826.jpg](https://user-images.githubusercontent.com/82578024/228230427-badc607e-70c2-4e9b-959a-fe079423b885.jpg)
+
+  Nước 15:
+
+
   
 
 
