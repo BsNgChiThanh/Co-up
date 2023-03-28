@@ -731,8 +731,51 @@
   
   Đen tấn Tốt 6 nhờ Sĩ bảo vệ.
 
+  ![1680008783102.jpg](https://user-images.githubusercontent.com/82578024/228245932-9eabc2b5-7f60-4096-8462-bab05c4d3c67.jpg)
+
   Nước 16:
- 
+
+  Đỏ bình Pháo vào tai Sĩ.
+
+  ![1680008997463.jpg](https://user-images.githubusercontent.com/82578024/228246953-0c844b6f-e016-42f7-8e37-6b01bbe747c9.jpg)
+
+  Đen tấn Pháo chém trung Binh, chiếu Tướng.
+
+  ![1680009052164.jpg](https://user-images.githubusercontent.com/82578024/228247226-01c3fef6-79b5-4072-a2b2-c2a0e0474bc4.jpg)
+
+  Nước 17:
+
+  Đỏ xuất Tướng.
+
+  ![1680009132076.jpg](https://user-images.githubusercontent.com/82578024/228247592-11ff35d0-04ad-4065-bef1-fefe24987729.jpg)
+
+  Đen Pháo 7 thối 2, âm mưu bình vào lộ 6.
+
+  ![1680009266866.jpg](https://user-images.githubusercontent.com/82578024/228248193-15a181a7-e73b-4d36-a1de-908dc059f497.jpg)
+
+  Nước 18:
+
+  Đỏ chạy Xe sang lộ 2 tránh trước một bước.
+
+  ![1680009380482.jpg](https://user-images.githubusercontent.com/82578024/228248798-52525d81-598e-410e-9495-c7e2b8a589c1.jpg)
+
+  Đen vẫn bình Pháo chiếu Tướng.
+
+  ![1680009467640.jpg](https://user-images.githubusercontent.com/82578024/228249206-73bbde9f-4569-45f3-9caa-b4d800607628.jpg)
+
+  Nước 19:
+
+  Đỏ chống Sĩ 5.
+
+  ![1680009581463.jpg](https://user-images.githubusercontent.com/82578024/228249750-9bb3c4d4-3bef-43ab-828a-dc47decd6627.jpg)
+
+  Đen sợ đỏ tấn Xe 2 xuống bắt Pháo lộ 6, chạy Pháo lộ 6 thì mất Pháo lộ 5, nên thối Pháo lộ 5 trước.
+
+  ![1680009688106.jpg](https://user-images.githubusercontent.com/82578024/228250302-4288afab-1235-414e-9b0f-07279b6832dc.jpg)
+
+  Nước 30:
+
+
  
 
 
