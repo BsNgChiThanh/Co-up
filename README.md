@@ -795,7 +795,77 @@
 
   Nước 22:
   
- 
+  Đỏ thối Pháo chém Pháo.
+
+  ![1680043637584.jpg](https://user-images.githubusercontent.com/82578024/228383871-a50d6c33-99cc-4439-bd05-6a0632ded34b.jpg)
+
+  Đen tấn Pháo chém Pháo.
+
+  ![1680043728465.jpg](https://user-images.githubusercontent.com/82578024/228384061-8f3c808d-5c31-445d-84d3-2d7d1a2a12ea.jpg)
+
+  Nước 23:
+
+  Đỏ tấn Tốt 7 sang sông quấy rối.
+
+  ![1680043828076.jpg](https://user-images.githubusercontent.com/82578024/228384285-d6e2651f-2c4f-4356-93d7-10b9002d69e0.jpg)
+
+  Đen không hiểu sao tấn Tốt 2, đưa Tốt vào miệng Tượng.
+
+  ![1680043907749.jpg](https://user-images.githubusercontent.com/82578024/228384460-42f463ea-4e9d-4921-83de-9ff3538aa3c2.jpg)
+
+  Nước 24:
+
+  Đỏ tấn Tượng 6 chém Tốt.
+
+  ![1680044007842.jpg](https://user-images.githubusercontent.com/82578024/228384652-9a452e18-32be-47dc-9e99-5e2e673a837f.jpg)
+
+  Đen Sĩ 5 tấn 6.
+  
+  ![1680044079441.jpg](https://user-images.githubusercontent.com/82578024/228384822-4e1c2da8-98d2-4740-811c-a5011553917a.jpg)
+
+  Nước 25:
+
+  Đỏ Sĩ 3 thối 4 bắt Pháo.
+
+  ![1680044162548.jpg](https://user-images.githubusercontent.com/82578024/228385120-0d16b842-643e-4974-a8b9-c7c0f9bf987b.jpg)
+
+  Đen thối Pháo một nấc.
+
+  ![1680044219592.png](https://user-images.githubusercontent.com/82578024/228385252-e79d963b-def1-4574-8164-ba724f7a4535.png)
+
+  Nước 26:
+
+  Đỏ bình Tốt 7 vào đường 6, truy Tốt.
+
+  ![1680044298106.jpg](https://user-images.githubusercontent.com/82578024/228385526-561398ca-aeb0-4442-af76-b2741a2d36e5.jpg)
+
+  Đen Pháo 5 bình 6.
+
+  ![1680044375782.jpg](https://user-images.githubusercontent.com/82578024/228385786-93b59ecd-5aaf-4a7b-853e-0ea191a6a4a4.jpg)
+
+  Nước 27:
+
+  Đỏ tiền Sĩ tấn 5 truy Pháo.
+
+  ![1680044448212.jpg](https://user-images.githubusercontent.com/82578024/228385951-829273cd-d8ab-46f4-ae01-c5a86970948a.jpg)
+
+  Đen Pháo 6 lánh nạn sang đường 7.
+
+  ![1680044522756.jpg](https://user-images.githubusercontent.com/82578024/228386116-f550879a-24b1-4364-8c64-b4fba034a588.jpg)
+
+  Nước 28:
+
+  Đỏ thối Xe truy Sĩ.
+
+  ![1680044612012.jpg](https://user-images.githubusercontent.com/82578024/228386292-e713322f-0e64-4a9e-b54b-01ff120a9f33.jpg)
+
+  Sĩ hết đường thoát nhưng không hiểu sao thối xuống đường 5.
+
+  ![1680044702980.jpg](https://user-images.githubusercontent.com/82578024/228386493-548aa406-86fe-49b1-91b0-46e75124b479.jpg)
+
+  Nước 29:
+
+  Đỏ 
 
 
   
