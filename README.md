@@ -725,7 +725,9 @@
 
   Nước 15:
 
+  Đỏ bình Xe 5 sang lộ 4 tránh né.
 
+  ![1680005235623.jpg](https://user-images.githubusercontent.com/82578024/228231021-cb8da60e-9254-4891-8a87-a86f629906a1.jpg)
   
 
 
