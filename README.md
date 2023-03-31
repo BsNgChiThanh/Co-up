@@ -889,6 +889,36 @@
 
   ![1680275102037.jpg](https://user-images.githubusercontent.com/82578024/229157987-9dee4dce-7a5a-4492-a923-ee952318da42.jpg)
 
+  Đen bình Pháo 7 vào đường 6.
+
+  ![1680275203833.jpg](https://user-images.githubusercontent.com/82578024/229158383-c70fda06-2e53-4fd0-82cd-4cd76856bc0b.jpg)
+
+  Nước 32:
+
+  Đỏ tấn Xe bắt Tốt.
+
+  ![1680275312733.jpg](https://user-images.githubusercontent.com/82578024/229158793-94c8016c-8585-47b8-bc7b-4271fbc7cbaf.jpg)
+
+  Đen tấn Tốt 6, cũng chả có ý nghĩa gì.
+
+  ![1680275389861.jpg](https://user-images.githubusercontent.com/82578024/229159108-4950e88f-89eb-4330-bcc6-1683e0dcf13d.jpg)
+
+  Nước 33:
+
+  Đỏ Xe 5 bình 4 đuổi Pháo.
+
+  ![1680275469075.jpg](https://user-images.githubusercontent.com/82578024/229159390-7c7a36a9-fa4d-4d7f-9e44-9c370b4f5cae.jpg)
+
+  Đen chạy Pháo vào trung lộ.
+
+  ![1680275537916.jpg](https://user-images.githubusercontent.com/82578024/229159687-7269c280-9d26-4a25-a449-ffe98a1024b4.jpg)
+
+  Nước 34:
+
+  Đỏ thối Xe chém Tốt.
+
+  ![1680275593904.jpg](https://user-images.githubusercontent.com/82578024/229159914-7d75019c-7c87-41ca-bdba-d5bccd8aebbc.jpg)
+
   Đen
 
 
