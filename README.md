@@ -859,13 +859,37 @@
 
   ![1680044612012.jpg](https://user-images.githubusercontent.com/82578024/228386292-e713322f-0e64-4a9e-b54b-01ff120a9f33.jpg)
 
-  Sĩ hết đường thoát nhưng không hiểu sao thối xuống đường 5.
+  Sĩ hết đường thoát nhưng cũng thối xuống đường 5 nương tựa Tượng.
 
   ![1680044702980.jpg](https://user-images.githubusercontent.com/82578024/228386493-548aa406-86fe-49b1-91b0-46e75124b479.jpg)
 
   Nước 29:
 
-  Đỏ 
+  Đỏ bình Tốt chém Sĩ.
+
+  ![1680274676906.jpg](https://user-images.githubusercontent.com/82578024/229156368-bd106df2-38d5-4137-aea5-c246f17885b3.jpg)
+
+  Đen tấn Tượng chém lại Tốt.
+
+  ![1680274780712.jpg](https://user-images.githubusercontent.com/82578024/229156770-d82da38c-9c4c-483c-b109-5b3e40d0e4e0.jpg)
+
+  Nước 30:
+
+  Đỏ tấn Xe bắt Pháo, nếu đen chạy Pháo, đỏ sẽ chém Tượng.
+
+  ![1680274945768.jpg](https://user-images.githubusercontent.com/82578024/229157414-8c449432-e80f-4517-ba71-604a3c3e422c.jpg)
+
+  ĐenĐen thối Pháo 2 nấc.
+
+  ![1680275039129.jpg](https://user-images.githubusercontent.com/82578024/229157752-6631a2f8-765d-49c3-9197-efcd6b08fa81.jpg)
+
+  Nước 31:
+
+  Đỏ bình Xe chém Tượng.
+
+  ![1680275102037.jpg](https://user-images.githubusercontent.com/82578024/229157987-9dee4dce-7a5a-4492-a923-ee952318da42.jpg)
+
+  Đen
 
 
   
