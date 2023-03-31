@@ -947,16 +947,7 @@
 
   Đỏ tấn Xe chém Sĩ sát cục.
 
-  
-
-
-  
-  
-
-
-
-
-
+  ![1680276368385.jpg](https://user-images.githubusercontent.com/82578024/229163368-f406feb8-2365-47f8-9ac9-3614957880e4.jpg)
 
 **6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
 
