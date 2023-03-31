@@ -919,7 +919,35 @@
 
   ![1680275593904.jpg](https://user-images.githubusercontent.com/82578024/229159914-7d75019c-7c87-41ca-bdba-d5bccd8aebbc.jpg)
 
-  Đen
+  Đen Tượng 1 thối 3.
+
+  ![1680275679080.jpg](https://user-images.githubusercontent.com/82578024/229160228-b92a4bb3-094e-4609-8d53-1051f5e0e572.jpg)
+
+  Nước 35:
+
+  Đỏ Sĩ 4 tấn 3.
+
+  ![1680275776369.jpg](https://user-images.githubusercontent.com/82578024/229160636-b903cfdc-0a7a-4cb3-8a96-de9cd1252153.jpg)
+
+  Đến đây chúng ta cùng nhìn lại các quân đã chết ở góc dưới bên trái bàn cờ, vậy đen còn lại một quân Xe, nó là một trong 3 quân cờ đang úp. Thật là xui cho bên đen, lật thêm 2 quân úp nữa vẫn không ra quân Xe.
+
+  ![1680276020757.jpg](https://user-images.githubusercontent.com/82578024/229161954-49658086-aa20-4408-9c98-a10e47e45a86.jpg)
+
+  Nước 36:
+
+  Đỏ tấn Tốt 2 xuống, thử vận đỏ đen, đúng là 2 quân úp của đen có một quân Xe, nếu đen Xe 9 bình 8 chém Tốt, ra quân Xe thật thì cầm cự được lâu.
+
+  ![1680276074534.jpg](https://user-images.githubusercontent.com/82578024/229162179-02444d9c-3bf9-4fae-84e5-5f941ec4344c.jpg)
+
+  Đen quá sức đen!
+
+  ![1680276265621.jpg](https://user-images.githubusercontent.com/82578024/229162981-f93452e3-7c5d-4d3b-813e-f697676092fd.jpg)
+
+  Nước 37:
+
+  Đỏ tấn Xe chém Sĩ sát cục.
+
+  
 
 
   
