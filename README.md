@@ -1,3 +1,7 @@
+Tác giả: Nguyễn Chí Thành
+
+![IMG_1674314482411_1674314628494](https://user-images.githubusercontent.com/82578024/231744943-b2b4a9d5-4f1a-4ef3-bb5b-3f874495b16b.jpg)
+
 # CỜ ÚP #
 
 **A. TỔNG QUAN VỀ CỜ ÚP**
