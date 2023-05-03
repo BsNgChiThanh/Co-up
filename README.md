@@ -955,35 +955,6 @@ Tác giả: Nguyễn Chí Thành
 
 **6. Ván 6: [Bấm vào đây](https://youtu.be/3eL6e2ZLXC4)**
 
-- Bình luận ván 6:
-
-  Nước 1:
-
-  Đỏ tấn Pháo 2 lên 5 nước, một nước đi khá mạnh trong cờ úp.
-
-  ![1680303512850.jpg](https://user-images.githubusercontent.com/82578024/229247069-a1df2ebe-6b1a-4074-8822-5d3e294f43c3.jpg)
-
-  Đen tấn Tượng, hy vọng ra Tốt hoặc Xe bảo vệ Tốt đầu.
-
-
-
-
-
 **7. Ván 7: [Bấm vào đây](https://youtu.be/F7q6TY7pJic)**
 
-
-
-
-
-
 # Đang cật nhật thêm #
-
-
-
-
-
-
-
-
-
-
